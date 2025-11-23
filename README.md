@@ -1,13 +1,3 @@
-## 🦁 Repository Name: **bold-as-lion**
-
-## 📖 Description: 
-**Building our simple life together while over-engineering everything along the way. From Texas to Mindanao to Bogota - tracking our animal systems, business ventures, and life journey through code, courage, and Proverbs 28:1.**
-
----
-
-# **README.md**
-
-```markdown
 # Bold As Lion 🦁
 
 > *"The wicked flee when no one pursues, but the righteous are bold as a lion." — Proverbs 28:1*
