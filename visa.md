@@ -14,8 +14,7 @@ The consulate needs to see that Moises can cover all costs during her transit wi
 
 The U.S. Department of State explicitly **advises against purchasing tickets before the visa is issued** . Instead of buying expensive refundable tickets, use a safer, verifiable alternative.
 
-*   **The Recommended Strategy**: Obtain a **refundable dummy ticket** or a fully refundable flight reservation from a trusted travel agency . This provides a legitimate, verifiable Passenger Name Record (PNR) that embassy staff can check on the airline's website, proving travel plans without the financial risk .
-*   **If You Purchase Refundable Tickets**: Ensure they are **fully refundable** and you understand the airline's policy. Some "refundable" tickets have high cancellation fees, and refunds can take weeks or months to process .
+*   **The Recommended Strategy**: Obtain a **refundable dummy ticket** or a fully refundable flight reservation from a trusted travel agency . This provides a legitimate, verifiable Passenger Name Record (PNR) that embassy staff can check on the airline's website, proving travel plans without the financial risk . [Onward Ticket](https://onwardticket.com/en)
 
 ### 📂 Colombia Entry Proof & Document Checklist
 
