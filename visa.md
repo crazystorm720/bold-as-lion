@@ -19,7 +19,7 @@ The U.S. Department of State explicitly **advises against purchasing tickets bef
 
 ### 📂 Colombia Entry Proof & Document Checklist
 
-Since you've verified that Philippine passport holders do not need a visa for tourist stays in Colombia of up to 90 days , you simply need to demonstrate this to the consular officer. A printout from an official source like the Colombian Ministry of Foreign Affairs website confirming this visa-free policy would be excellent supporting evidence.
+Since you've verified that Philippine passport holders do not need a visa for tourist stays in Colombia of up to 90 days , you simply need to demonstrate this to the consular officer. A printout from an official source like the Colombian Ministry of Foreign Affairs website confirming this visa-free policy would be excellent supporting evidence. [Colombian Ministry of Foreign Affairs ](https://www.cancilleria.gov.co/tramites_servicios/visa/lista-a-b-c)
 
 Here is a consolidated checklist of documents Moises should bring to her interview:
 
