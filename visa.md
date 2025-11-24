@@ -24,7 +24,7 @@ Here is a consolidated checklist of documents Moises should bring to her intervi
 
 *   **Mandatory Application Items**:
     *   Passport valid for at least 6 months beyond her stay .
-    *   DS-160 confirmation page .
+    *   [DS-160](https://ceac.state.gov/genniv/) confirmation page .
     *   Visa application fee payment receipt .
     *   Photo (usually uploaded to DS-160, but bring one just in case) .
 *   **Proof of Transit & Travel Plans**:
