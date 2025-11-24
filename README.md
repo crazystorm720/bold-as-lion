@@ -47,7 +47,7 @@ Clients → DocuSeal (Contracts) → Invoice Ninja (Invoices) → GnuCash (Accou
 - [ ] Deploy business systems (Invoice Ninja, GnuCash, DocuSeal)
 - [ ] Launch rabbit production system
 
-### Animal Production Systems
+### [Animal Production Systems](https://github.com/crazystorm720/bold-as-lion/blob/main/Animal_Production_Systems.md)
 - 🐇 **Rabbit System** - FAST reproduction, low input
 - 🕊 **Pigeon System** - Self-sustaining premium meat  
 - 🐤 **Quail System** - Gourmet eggs & rapid cycles
