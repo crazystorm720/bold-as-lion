@@ -84,7 +84,7 @@ Clients → DocuSeal (Contracts) → Invoice Ninja (Invoices) → GnuCash (Accou
 - [ ] Establish manual data flow between systems
 - [ ] Train Lyn on basic system operations
 
-## 💬 Operating Philosophy
+## 💬 [Operating Philosophy](https://github.com/crazystorm720/bold-as-lion/blob/main/reality_engine.md)
 
 ### The Sparrow vs Emperor Framework
 We choose **truth over appearance** in every decision:
