@@ -18,6 +18,8 @@
 
 [Las empanadas panela y cafe](https://maps.app.goo.gl/wKvEiyyxABbQpLbx9)
 
+[CheckMig](https://apps.migracioncolombia.gov.co/pre-registro/en)
+
 Here’s your crash course on Aguardiente so you sound like a pro:
 
 What You're Ordering:
