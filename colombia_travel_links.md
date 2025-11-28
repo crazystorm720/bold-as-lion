@@ -4,6 +4,8 @@
 
 [Paloquemao Fruit Market](https://maps.app.goo.gl/ZrMnpRQnwv58AUui6)
 
+[Fruit Tour at the Sweetest Market on Earth](https://www.airbnb.com/experiences/586856?guests=1&adults=1&s=67&unique_share_id=11db5402-6c25-4948-bb72-434147e38579&s=67)
+
 [Tomy Tomato Pizzeria](https://maps.app.goo.gl/yXKDb9emXfy8aSfB7)
 
 [Cafe Mary's haus Restaurante](https://maps.app.goo.gl/M1syuVCqsk5yZzkZA)
