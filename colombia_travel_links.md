@@ -1,4 +1,4 @@
-[colombia](https://travel.state.gov/en/international-travel/travel-advisories/colombia.html)
+[State Department Travel Advisory for Colombia](https://travel.state.gov/en/international-travel/travel-advisories/colombia.html)
 
 [Smart Traveler Enrollment Program](https://mytravel.state.gov/s/step#_blank)
 
