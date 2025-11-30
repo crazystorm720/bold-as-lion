@@ -10,14 +10,6 @@
 
 [Cafe Mary's haus Restaurante](https://maps.app.goo.gl/M1syuVCqsk5yZzkZA)
 
-[Google Voice](https://voice.google.com/)
-
-[Calendly](https://calendly.com/)
-
-[whatsapp](https://web.whatsapp.com/)
-
-[Drivers License](https://www.usa.gov/international-drivers-license)
-
 [Las empanadas panela y cafe](https://maps.app.goo.gl/wKvEiyyxABbQpLbx9)
 
 [CheckMig](https://apps.migracioncolombia.gov.co/pre-registro/en)
