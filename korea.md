@@ -1,4 +1,4 @@
-## Korea Trave
+## Korea Travel Information
 
 [Korea Travel](https://www.visa.go.kr/openPage.do?MENU_ID=1010201)
 
