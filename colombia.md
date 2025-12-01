@@ -14,6 +14,8 @@
 
 [CheckMig](https://apps.migracioncolombia.gov.co/pre-registro/en)
 
+[Rappi](https://www.rappi.com.co/)
+
 Here’s your crash course on Aguardiente so you sound like a pro:
 
 What You're Ordering:
