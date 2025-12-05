@@ -3,40 +3,6 @@
 
 **Hey Lyn —**
 
-That upper back tension from extension work isn't a badge of endurance—it's a signal. Your body's asking for better mechanics. Since you're sharp and in good shape, you'll respond quickly when we give your body the right cues.
-
-Think of this as retraining for precision. It's not about working harder; it's about working smarter.
-
----
-
-### **Your 3-Point Reset Plan**
-
-#### **1. Reconfigure Your Workspace (Geometry First)**
-**Rule:** Your client's hand should be at or slightly below your elbow when you sit upright.
-- **If your table is fixed:** Lower the client—use a sturdy stool or thick book under their arm rest
-- **Bridge the gap:** Place a folded towel under your client's wrist to bring nails closer
-- **Support your spine:** Sit all the way back. Use a rolled towel behind your lower back if needed
-
-#### **2. Move with Intention (The Micro-Habits)**
-- **Between clients:** Stand, do 5 slow shoulder rolls backward, shake out your hands
-- **While working:** Every 20 minutes, pause 20 seconds. Look away, drop shoulders, take 3 deep breaths
-- **Engage your back:** Before starting a nail, gently pull shoulder blades down and together
-
-#### **3. The 5-Minute Daily Recharge**
-- **Wall Angels:** Stand against wall, make "goalpost" with arms, slide up/down slowly (10 reps)
-- **Doorway Stretch:** Forearms on doorframe, step through gently (hold 30 seconds)
-- **Tennis Ball Release:** Ball between shoulder blade and spine, lean against wall (hold on tight spots 30 seconds)
-
----
-
-**Start here:** Tomorrow, just focus on **lowering the client's hand** and doing the **5-minute recharge** after work. Your muscles are ready to be awakened—you just need to give them the signal.
-
-You've got this. 💅✨
-
----
-
-**Hey Lyn —**
-
 Your partner and soon to be esposo mentioned you're dealing with some upper back tension from those long sessions on extensions. First off: that pain isn't a badge of endurance—it's a signal. And because you're sharp and in good shape, your body's going to respond fast when we give it the right cues.
 
 Think of this like retraining your posture for precision. It's not about working harder; it's about working smarter, so you can keep doing beautiful work without paying for it later.
