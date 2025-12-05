@@ -71,83 +71,158 @@ You’ve got the strength and the smarts. This is just about directing them towa
 
 Respectfully yours in clean lines and pain-free days. 💅✨
 
+---
+
 # Bold As Lion Our Business Together 🦁
 
-Hi Lyn! This is our shared workspace where we keep everything organized for our business and life together.
+# **The Bounded Chaos Framework: A Guide for Lyn & Jason**
+*A Living Document for Building Your Life Together*
 
-## What We're Building
-
-We're creating a simple business that lets us:
-- Work from anywhere (Texas, Philippines, Colombia)
-- Help people with important documents
-- Make money while traveling together
-
-## The 3 Main Tools We Use
-
-### 1. **Invoice Ninja** - For Making Bills
-- Creates professional invoices for clients
-- Tracks who paid and who didn't
-- Easy to use from phone or computer
-
-### 2. **GnuCash** - For Tracking Money
-- Like a digital checkbook
-- Shows where money comes from and goes
-- Helps with taxes and business reports
-
-### 3. **DocuSeal** - For Signing Papers
-- People can sign contracts online
-- No need to print and scan
-- Everything stays secure
-
-## What We Need to Do Now
-
-### 🎯 **Your Most Important Tasks**
-
-1. **Business Registration in Alabel**
-   - Register your business name
-   - Get official business papers
-   - This is your business!
-
-2. **US Transit Visa for Bogotá**
-   - We'll apply for C1 visa
-   - You can transit through US to Colombia
-   - I'll help with all paperwork
-
-3. **Learn Basic Business Steps**
-   - How to create an invoice
-   - How to track expenses
-   - How to send contracts
-
-## Our Animal Projects 🐇
-
-We're also building our farm systems:
-- **Rabbits** - Fast breeding, good meat
-- **Pigeons** - Self-sustaining 
-- **Quail** - For eggs
-- **Goats** - Clear land and give milk
-- **Ducks & Chickens** - Eggs and pest control
-
-## How to Use This Page
-
-When you're not sure what to do:
-1. Look at this page
-2. Pick one small task
-3. Ask me if you have questions
-
-## Important Links for Us
-
-- **Our Calendar**: https://calendar.google.com/
-- **Our Phone Number**: https://voice.google.com/
-- **Our Messaging**: https://web.whatsapp.com/
-
-## Remember
-
-We're building this together. No pressure, no rush. One small step at a time.
-
-I love you and I'm proud of us.
-
-*Jason*
+## **CORE PHILOSOPHY: BOUNDED CHAOS**
+**Chaos =** Freedom, exploration, spontaneity, passion  
+**Bounds =** Security, health, home, system  
+**Balance =** Using structure to fund freedom
 
 ---
 
-**Last updated: ${new Date().toLocaleDateString()}**
+## **YOUR ONE-PAGE DASHBOARD**
+
+### **THE FOUNDATION (Your "Bounds")**
+1. **Health First** - Posture routine, medical sovereignty, vision restoration
+2. **Home Base** - Secure housing in Cebu/Bogotá
+3. **Financial Floor** - $4.3M → $10k/month passive income
+4. **Legal Peace** - Trauma recovery, case closed
+
+### **THE FLOW (Your "Chaos")**
+1. **Passion Projects** - ADA tech, mentoring, advocacy
+2. **Family Healing** - Reconciliation work
+3. **Global Living** - Philippines/Colombia rhythm
+4. **Legacy Building** - Davis Foundation
+
+---
+
+## **PHASE 1: THE GREAT RESTORATION (Now - 12 Months)**
+*"Heal first, build second"*
+
+### **Daily Non-Negotiables:**
+- Posture routine (5-minute recharge)
+- Health optimization steps
+- 1 business task (invoice, client follow-up)
+- 1 personal joy item
+
+### **Monthly Focus Areas:**
+1. **Medical Sovereignty** - Complete vision restoration plan
+2. **Business Registration** - Alabel papers complete
+3. **US Transit Visa** - C1 application filed
+4. **System Setup** - Invoice Ninja + GnuCash running
+5. **Home Search** - Cebu property identified
+
+### **Quarterly Checkpoints:**
+- Health progress review
+- Passive income tracking ($10k/month target)
+- Relationship healing steps
+- Document learning in "Case Study Journal"
+
+---
+
+## **YOUR 3-BASKET FINANCIAL SYSTEM**
+
+### **Basket 1: The Fortress (80%)**
+- **Location:** Charles Schwab Account
+- **Content:** S&P 500 Index Funds (VOO/IVV)
+- **Purpose:** Generate $10k/month forever
+- **Rule:** Never touch principal
+
+### **Basket 2: The Bridge (20%)**
+- **Content:** $867k in Schwab Checking
+- **Sub-Baskets:**
+  * $300k - Housing Fund
+  * $267k - Health Fund
+  * $200k - Passion Projects
+  * $100k - Family Healing
+- **Purpose:** Fund Phase 1 restoration
+
+### **Basket 3: The Flow**
+- **Content:** Monthly income from Basket 1
+- **Purpose:** Daily life, business growth, giving
+- **Access:** ATM withdrawals globally (Schwab debit)
+
+---
+
+## **THE TOOLS THAT MATTER**
+
+### **For Business:**
+1. **Invoice Ninja** - Client billing
+2. **GnuCash** - Money tracking
+3. **DocuSeal** - Contract signing
+4. **Google Drive** - Document home
+
+### **For Health:**
+1. **Posture Guide** - Your daily routine
+2. **Medical Binder** - All health records
+3. **Therapy Journal** - Legal trauma recovery
+
+### **For Connection:**
+1. **Shared Calendar** - One truth for time
+2. **WhatsApp** - Daily communication
+3. **Voice.Google** - Your shared number
+
+---
+
+## **DECISION FILTERS**
+
+When unsure, ask:
+1. Does this improve our health or security? (YES → Do it)
+2. Does this drain time/money without purpose? (NO → Skip it)
+3. Does this align with our 3-year vision? (MAYBE → Evaluate)
+4. Does this bring joy without breaking bounds? (YES → Consider)
+
+---
+
+## **THE METRICS THAT MATTER**
+
+### **Weekly:**
+- Health: Posture routine completed? (7/7 days)
+- Business: Invoices sent? Clients served?
+- Connection: Quality time together?
+- Joy: Something beautiful created/experienced?
+
+### **Monthly:**
+- Passive income: $10k+ received?
+- Expenses: Within "Flow" basket?
+- Progress: One Phase 1 item completed?
+- Learning: One new skill acquired?
+
+### **Quarterly:**
+- Net worth: Stable or growing?
+- Health markers: Improving?
+- Relationship healing: Progress?
+- Legacy step: One foundation stone laid?
+
+---
+
+## **START HERE TOMORROW:**
+
+1. **Morning:** Posture routine + health appointment scheduling
+2. **Afternoon:** One business task (Alabel papers OR invoice setup)
+3. **Evening:** Review this guide together, adjust as needed
+4. **Always:** Protect the fortress, use the flow, honor the bounds
+
+---
+
+## **REMEMBER THE ANCHORS:**
+
+1. **The River** (Your passive income) - Always flows, never force it
+2. **The Fire** (Your passion) - Warm when bounded, destructive when wild  
+3. **The Garden** (Your health/relationships) - Daily tending required
+4. **The Foundation** (Your security) - Never compromise, always fortify
+
+---
+
+*This document breathes. Edit it weekly. Print it. Live it. The bounds make the chaos beautiful.*
+
+**Next review date:** First Sunday of next month  
+**Current phase:** Great Restoration (Healing First)  
+**Progress:** Just begun, all options open  
+
+*For Lyn & Jason - Building something real together.*
