@@ -1,3 +1,6 @@
+
+[contract marriage](https://ph.usembassy.gov/message-for-u-s-citizens-change-in-notarization-requirements-for-legal-capacity-to-contract-marriage/)
+
 Based on your detailed plans, here's a more specific breakdown focusing on the financial proof, flight tickets, and documentation for Moises's C-1 transit visa interview.
 
 ### 💵 Financial Evidence: Suggested Account Sizes & Documentation
