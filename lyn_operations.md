@@ -41,6 +41,36 @@ Respectfully yours in clean lines and pain-free days. 💅✨
 
 # Bold As Lion Our Business Together 🦁
 
+Here is the complete guide to register the business and open the bank account, based on all the confirmed information.
+
+### **Phase 1: Business Registration**
+**Step 1: Register with DTI**
+*   **Action:** Go to **[bnrs.dti.gov.ph](https://bnrs.dti.gov.ph)**.
+*   **Detail:** Register the name **"The Moises Foundation"**.
+*   **Choose:** **"Barangay"** as the territorial scope.
+*   **Cost:** **₱230** (₱200 fee + ₱30 stamp tax).
+*   **Get:** The **DTI Certificate**. Print it.
+
+**Step 2: Get Barangay Clearance**
+*   **Action:** Go to your local **Barangay Hall**.
+*   **Bring:** The printed **DTI Certificate** and a valid **ID**.
+*   **Cost:** Approximately **₱300 to ₱1,000** (fee set by your Barangay).
+*   **Get:** The **Barangay Business Clearance**.
+
+### **Phase 2: Open BPI Business Account**
+**Step 3: Go to BPI**
+*   **Action:** Visit a **BPI branch** with the required documents.
+*   **Bring:**
+    1.  Original **DTI Certificate** for "The Moises Foundation".
+    2.  Original **Barangay Business Clearance**.
+    3.  Two (2) valid **government IDs** of the account signatory.
+    4.  Initial deposit (minimum amount varies; **₱5,000** is a safe estimate).
+*   **Note:** Tell the bank it is a **sole proprietorship** (not a foundation corporation).
+
+This is the complete process from start to finish. Once you have the two permits from Phase 1, you can proceed directly to BPI for Phase 2.
+
+---
+
 # **The Bounded Chaos Framework: A Guide for Lyn & Jason**
 *A Living Document for Building Your Life Together*
 
